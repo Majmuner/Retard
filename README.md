@@ -1,0 +1,2 @@
+# Retard
+Majmuni su majmuni
